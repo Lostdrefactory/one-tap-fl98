@@ -1,4 +1,4 @@
-#  
+#  one tap Script hidden offers the most advanced one tap Script, with anti-ban and speed. Perfect for dominating any match.
 
 
 
